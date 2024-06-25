@@ -6,7 +6,7 @@
 //---- What about a kidnapping/ransom?
 
 //---- Gather the crew
-
+  Dover was the next town over, but without anyway to get there Jeremy was stuck on firewatch duty.  I'll help!  Take me with you, I have already eaten and can tend to horses.
 //---- Give away the first chess piece?  Which one?  Thinking Castles (maybe the fire towers move from town to town?)
 
 //---- Rook? Maybe birds nest in the towers (rookery?)
